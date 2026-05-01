@@ -1,0 +1,2 @@
+As a cybersecurity student, I'm Passionate about understanding how systems work and have a knack for troubleshooting technical problems by finding and fixing flaws. My commitment is to apply this capability in cyberspace to protect information.
+With a deep-seated passion for security, I've explored various fields, from physical protection to the military,security guard. While my path has taken me in different directions, My commitment to protection remains unwavering, now focused on cyberspace.
